@@ -21,4 +21,28 @@
 4.未来的玩法！不让大致乏味以及退游这个认知,以及更多对服务器的好感度!
 5.对于服务器手游玩家我服也会以上限极快的内容更新我服的软件来供应手游玩家等...
 
-我们的群号:338038221
+# Server change plan and MOD
+![server-icon](https://github.com/Hugo1314520/My-server./assets/122942974/8d6b2dac-63ca-460c-b174-063960b3501f)
+
+🚀This is a self-created server that contains a variety of game and experience facilities. I hope it can better improve more experiences and cause the majority of players to become bored and tired of this server.
+I have roughly planned all the MODs on the Minecraft server and the contents are as follows:
+1. Pokémon MOD and more Pokémon content
+2. The mythical beast counts down in seconds! Divine beast double yolk egg!
+3. Transform into a Pokémon elf!
+4. Draw the sword and more contents about drawing the sword
+5. Rendering and game frame freezes
+Gameplay such as equivalent exchange and technological mystery may be added in the future!
+However, for general identification, we will not accept more mods to burden the server and smoothness!
+
+![R](https://github.com/Hugo1314520/My-server./assets/122942974/d6ad9e73-f591-4b2e-b4e0-1fffc880dc66)
+
+
+👍Planning for newbies and experience content:
+1. The rough plan is to treat each player’s feelings and server experience in a formal way on 2024/8/1/1 or 2025/1/1.
+2. The gameplay experience of future mods and server content has been tolerant and compatible with novices. We will continue to control novices and minors, otherwise minors will recharge games, etc...
+3. Private transactions of money, content of our server, etc. are prohibited! Wait, otherwise I will be held legally responsible and I will not be held responsible! Just to treat every player and not be deceived, etc..
+4. Future gameplay! Avoid the perception of being generally boring and quitting the game, and gain more favorability towards the server!
+5. For server mobile game players, our server will also update our server’s software with extremely fast content to provide mobile game players, etc...
+
+# 我们的群号:338038221
+# Telegram/纸飞机:https://t.me/+x1L_v4mo_pdjNmY8
