@@ -46,3 +46,4 @@ However, for general identification, we will not accept more mods to burden the 
 
 # 我们的群号:338038221
 # Telegram/纸飞机:https://t.me/+x1L_v4mo_pdjNmY8
+# 爱发电: https://afdian.net/a/jianiaya
